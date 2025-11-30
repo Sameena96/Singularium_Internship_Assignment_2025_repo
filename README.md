@@ -1,0 +1,1 @@
+# Singularium_Internship_Assignment_2025_repo
